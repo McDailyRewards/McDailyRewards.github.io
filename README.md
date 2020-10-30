@@ -1,0 +1,1 @@
+# McDailyRewards.github.io
